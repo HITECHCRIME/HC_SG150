@@ -42,6 +42,8 @@ what a place?
 gotta fight for this place
 watch what i'm doing
 while you have something to say
+lose my face
+masks on every step
 
 VERSE
 
