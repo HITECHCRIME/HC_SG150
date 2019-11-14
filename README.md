@@ -9,9 +9,9 @@
 (FREE) Drake Type Beat - Titan  Free TrapRap Instrumental 2019 Prod NiNETY8
 
 
-**Title:**  / **Featuring:** 
+**Title:** X / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** X / **Lyrics:** 
 
 ## Lyrics
 
