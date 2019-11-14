@@ -29,12 +29,11 @@ what's fair is not the aim
 crushed by a world all gang 
 all in together
 years apart, same place
-
 I know connection's hard enough
-(such) distaste
-i don't wanna fight
+distaste i don't wanna fight
 i don't wanna lose my place yeah
 i don't wanna lose my place
+
 gotta race
 what a place
 and erase yeah
