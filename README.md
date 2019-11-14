@@ -40,6 +40,8 @@ what a place
 and erase yeah
 what a place?
 
+gotta fight for this place
+
 VERSE
 
 HOOK 
