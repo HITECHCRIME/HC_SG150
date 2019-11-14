@@ -16,10 +16,13 @@
 ## Lyrics
 
 ```
+HOOK
 what's fair is not the aim
 crushed by a world all gang all gang
 all in together
 years apart, same place
+
+aye
 
 (one of) what's fair is not the aim
 crushed by a world all gang all in together
