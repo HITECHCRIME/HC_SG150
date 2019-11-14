@@ -24,6 +24,7 @@ years apart, same place
 
 aye
 
+CHORUS
 (one of) what's fair is not the aim
 crushed by a world all gang all in together
 years apart, same place
@@ -36,6 +37,12 @@ gotta race
 what a place
 and erase yeah
 what a place?
+
+VERSE
+
+HOOK 
+
+CHORUS
 
 ```
 
