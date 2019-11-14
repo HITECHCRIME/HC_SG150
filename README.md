@@ -16,15 +16,21 @@
 ## Lyrics
 
 ```
+what's fair is not the aim
+crushed by a world all gang all gang
+all in together
+years apart, same place
+
 (one of) what's fair is not the aim
 crushed by a world all gang all in together
 years apart, same place
 I know connection's hard (enough)
 distaste
 i don't wanna fight
-i don't wanna lose my place
+i don't wanna lose my place yeah
 i don't wanna lose my place
 gotta race
+what a place
 erased yeah
 what a place
 
