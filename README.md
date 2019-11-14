@@ -23,6 +23,10 @@ I know connection's hard (enough)
 distaste
 i don't wanna fight
 i don't wanna lose my place
+i don't wanna lose my place
+gotta race
+erased yeah
+what a place
 
 ```
 
