@@ -19,6 +19,10 @@
 (one of) what's fair is not the aim
 crushed by a world all gang all in together
 years apart, same place
+I know connection's hard (enough)
+distaste
+i don't wanna fight
+i don't wanna lose my place
 
 ```
 
