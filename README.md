@@ -11,7 +11,7 @@
 
 **Title:** X / **Featuring:** MOTHNODE
 
-**Production:** X / **Lyrics:** 
+**Production:** X / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
