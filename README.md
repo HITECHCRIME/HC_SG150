@@ -10,7 +10,7 @@
 
 **Title:** Years Apart, Samme Place / **Featuring:** MOTHNODE
 
-**Production:** X / **Lyrics:** MOTHNODE
+**Production:** NINETY8 / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
