@@ -42,8 +42,10 @@ what a place?
 gotta fight for this place
 watch what i'm doing
 while you have something to say
-lose my face
+lose my face throwing tantrums 
 masks on every step
+it's really not the case
+of falling into disrepair
 
 VERSE
 
