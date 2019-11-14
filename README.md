@@ -31,7 +31,7 @@ i don't wanna lose my place yeah
 i don't wanna lose my place
 gotta race
 what a place
-erased yeah
+and erase yeah
 what a place
 
 ```
