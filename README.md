@@ -18,7 +18,7 @@
 HOOK
 
 what's fair is not the aim
-crushed by a world all gang 
+crushed by a world all gang (old gang)
 all gang all in together
 years apart, same place
 aye
