@@ -16,11 +16,11 @@
 
 ```
 HOOK
-what's fair is not the aim
-crushed by a world all gang all gang
-all in together
-years apart, same place
 
+what's fair is not the aim
+crushed by a world all gang 
+all gang all in together
+years apart, same place
 aye
 
 CHORUS
