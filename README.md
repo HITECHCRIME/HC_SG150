@@ -24,6 +24,7 @@ years apart, same place
 aye
 
 CHORUS
+
 what's fair is not the aim
 crushed by a world all gang 
 all in together
@@ -45,7 +46,11 @@ while you have something to say
 
 VERSE
 
+
+
 HOOK 
+
+
 
 CHORUS
 
