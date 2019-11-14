@@ -25,11 +25,13 @@ years apart, same place
 aye
 
 CHORUS
-(one of) what's fair is not the aim
-crushed by a world all gang all in together
+what's fair is not the aim
+crushed by a world all gang 
+all in together
 years apart, same place
-I know connection's hard (enough)
-distaste
+
+I know connection's hard enough
+(such) distaste
 i don't wanna fight
 i don't wanna lose my place yeah
 i don't wanna lose my place
@@ -43,6 +45,13 @@ VERSE
 HOOK 
 
 CHORUS
+
+---
+
+(one of) what's fair is not the aim
+crushed by a world all gang all in together
+years apart, same place
+I know connection's hard (enough)
 
 ```
 
