@@ -4,8 +4,10 @@
 
 **Listen now:** 
 
-Harmony
+Harmony:
+
 Emaj - Bmaj - F#min
+
 Dmin - Amin - Emin
 
 ## Project Data
