@@ -38,6 +38,19 @@ I know connection's hard enough
 i don't wanna lose my place (state) yeah
 i don't wanna lose my place
 
+what's fair is not the aim
+crushed by a world all gang 
+all in together
+years apart, same place
+I know connection's hard enough
+(in this state) distaste i don't wanna fight
+i don't wanna lose my place (state) yeah
+i don't wanna lose my place
+
+gotta unson
+signing
+fault
+
 gotta race
 what a place
 and erase yeah
