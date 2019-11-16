@@ -31,7 +31,7 @@ all in together
 years apart, same place
 I know connection's hard enough
 (in this state) distaste i don't wanna fight
-i don't wanna lose my place yeah
+i don't wanna lose my place (state) yeah
 i don't wanna lose my place
 
 gotta race
