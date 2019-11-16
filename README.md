@@ -8,7 +8,7 @@
 
 (FREE) Drake Type Beat - Titan  Free TrapRap Instrumental 2019 Prod NiNETY8
 
-**Title:** Years Apart, Samme Place / **Featuring:** MOTHNODE
+**Title:** Years Apart, Same Place / **Featuring:** MOTHNODE
 
 **Production:** NINETY8 / **Lyrics:** MOTHNODE
 
