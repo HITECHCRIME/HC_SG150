@@ -4,6 +4,10 @@
 
 **Listen now:** 
 
+Harmony
+Emaj - Bmaj - F#min
+Dmin - Amin - Emin
+
 ## Project Data
 
 (FREE) Drake Type Beat - Titan  Free TrapRap Instrumental 2019 Prod NiNETY8
