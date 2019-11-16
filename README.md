@@ -30,7 +30,7 @@ crushed by a world all gang
 all in together
 years apart, same place
 I know connection's hard enough
-distaste i don't wanna fight
+(in this state) distaste i don't wanna fight
 i don't wanna lose my place yeah
 i don't wanna lose my place
 
